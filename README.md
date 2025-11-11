@@ -1,4 +1,4 @@
-# Angelita Rettore de Araujo Zanella
+# Angelita Rettore de Araujo 
 
 Professora no IFC *campus* Videira desde 2010
 
